@@ -1,0 +1,1 @@
+Bunu test amaçlı yazıyoruz. 
